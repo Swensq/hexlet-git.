@@ -1,1 +1,0 @@
-Spasibo Vlad
